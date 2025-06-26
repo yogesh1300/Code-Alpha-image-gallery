@@ -1,1 +1,0 @@
-# Code-Alpha-image-gallery
